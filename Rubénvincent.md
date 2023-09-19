@@ -28,4 +28,10 @@ Jo crec que la habilitat que tinc per entrendre els videojocs és molt bona, sob
 
 8. Xarxes socials: 
 Les meves xarxes socials: [Instagram] (https://www.instagram.com/eladiocarrion/), [Twitter] (https://twitter.com/eladiocarry_on?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor), [Tik tok] (https://www.tiktok.com/discover/Eladio-Carri%C3%B3n?lang=es) i [Youtube] (https://www.youtube.com/channel/UC0_95MpNlRz9x7JmsXBClZA)
+
+9. Fotografia:
+![klvggfjghfghf](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTNjlq1gGdog-cZXurJ8nEOe7rMoR3EiK2KRQ&usqp=CAU)
+
+10. Enllaços adicionals:
+De moment no tinc cap bloc personal
  
