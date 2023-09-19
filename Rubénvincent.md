@@ -16,4 +16,16 @@ Em dic Rubén i visc a [Santa Coloma de Gramenet] (https://www.google.es/maps/pl
 Jo ara mateix estic fent un cicle de sistemes microinformatics i xarxes, i jo tinc:
 - Primaria
 - Eso
+
+5. Experiència laboral: 
+De moment no tinc ninguna experiència laboral
+
+6. Projectes destacats:
+De moment no tinc cap projecte personal ni professional, peró en un futur pot ser que tingui els meus projectes
+
+7. Habilitats: 
+Jo crec que la habilitat que tinc per entrendre els videojocs és molt bona, sobretot als jocs de guerra com perexemple el call of duty o als jocs de esports com per exemple al fifa, i la capacitat que tinc per posarme a fer alguna cosa de treball
+
+8. Xarxes socials: 
+Les meves xarxes socials: [Instagram] (https://www.instagram.com/eladiocarrion/), [Twitter] (https://twitter.com/eladiocarry_on?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor), [Tik tok] (https://www.tiktok.com/discover/Eladio-Carri%C3%B3n?lang=es) i [Youtube] (https://www.youtube.com/channel/UC0_95MpNlRz9x7JmsXBClZA)
  
