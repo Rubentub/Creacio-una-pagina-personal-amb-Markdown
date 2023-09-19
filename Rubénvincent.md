@@ -11,4 +11,9 @@ Em dic Rubén i visc a [Santa Coloma de Gramenet] (https://www.google.es/maps/pl
 - Dormir tambe es una de les meves aficions
 - La informàtica, desde fa anys que m'agrada la informàtca i sobretot m'agrada el tema de [Manteniment] (https://mantenimiento--informatico.com/tecnoderecho/?gclid=EAIaIQobChMIy5HMu8-2gQMVjMDVCh3H9AQkEAAYASAAEgJ7W_D_BwE) y muntar y desmuntar pcs
 - Escoltar música desde [Spotify] (https://open.spotify.com/) 
+
+4. Educació:
+Jo ara mateix estic fent un cicle de sistemes microinformatics i xarxes, i jo tinc:
+- Primaria
+- Eso
  
