@@ -1,0 +1,1 @@
+Hola me llamo Rubén y soy amigo del gitano de [Santa Coloma de Gramenet] (https://www.google.es/maps/place/Avinguda+de+Santa+Coloma,+08922+Santa+Coloma+de+Gramenet,+Barcelona/@41.4469481,2.2061198,16.71z/data=!4m6!3m5!1s0x12a4bc922cc2141b:0x84200ab131c0ad12!8m2!3d41.447731!4d2.2081509!16s%2Fg%2F11xv93jw6?entry=ttu)
